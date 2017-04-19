@@ -1,3 +1,3 @@
 # Hello Github
 交流学习用的
-my name's ZhaoJie
+我现在在山西太原
